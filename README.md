@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @eZz and i Make Scripts for Fivem
+- Discord: https://discord.gg/wQRNy2FsWN
